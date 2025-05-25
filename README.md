@@ -20,7 +20,7 @@
 
 ## تواصل معي:
 - البريد الإلكتروني: a7q2014@gmail.com
-- LinkedIn: [https://ye.linkedin.com/in/abdulkhaleq-amin-228a0959]((https://ye.linkedin.com/in/abdulkhaleq-amin-228a0959))
+- LinkedIn: [linkedin.com/in/abdulkhaleq-amin](https://ye.linkedin.com/in/abdulkhaleq-amin-228a0959)
 
 ---
 
